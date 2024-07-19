@@ -1,0 +1,1 @@
+copia não comedia kkkkkkkkkkk
